@@ -1,7 +1,12 @@
 # english-learning
 chưa dc nghỉ đâu 
-f gfg f f fg fg 
- fnfg nfgn 
-  fnfgn f 
-   fngfn fgn 
-    fnfgnfn f
+day 1
+cretor acc github vs X acc
+viet tieu su, tinhs points
+tạo acc x mới cho hnay
+làm sao nhảy?
+nhảy làm gì?
+đam mê ko?
+học nhanh
+làm nhiều
+test nhiều  
